@@ -1,4 +1,4 @@
-#  
+#  مخصص escape tsunami for brainrots سكربت هو أفضل escape tsunami for brainrots سكربت مع قدرة غير محدودة و غير قابل للكشف. آمن، موثوق، ومُحَسّن لأقصى أداء.
 
 
 
